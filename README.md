@@ -1,6 +1,6 @@
 
 
-    ![2024-10-09-19-01-43](https://github.com/user-attachments/assets/11d3f0a3-ae57-4df3-8557-e60eb3fdf754)
+![2024-10-09-19-01-43](https://github.com/user-attachments/assets/11d3f0a3-ae57-4df3-8557-e60eb3fdf754)
 
 
 
