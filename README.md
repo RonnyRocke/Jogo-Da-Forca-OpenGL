@@ -2,7 +2,8 @@
 
 
 
-![demonstracaforca](https://github.com/user-attachments/assets/7e6a59c0-5b66-4163-8e5a-2211f582af90)
+<img src="https://github.com/user-attachments/assets/7e6a59c0-5b66-4163-8e5a-2211f582af90" alt="demonstracaforca" width="400" />
+
 
 
 
